@@ -1,5 +1,5 @@
 ### Hi there 👋
-### i am shonaconfi
+### i am Confidence Joseph
  🔭 I’m currently working on my linkedin account
 - 🌱 I’m currently learning data analysis
 - 👯 I’m looking to collaborate on data analysis
